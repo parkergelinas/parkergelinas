@@ -1,6 +1,6 @@
 ### Hey, I'm Parker 👋🏽  
 
-I'm a 21-year-old developer based in Canada, and I'm passionate about crafting digital experiences. 
+I'm a 22-year-old developer based in Canada, and I'm passionate about crafting digital experiences. 
 
 - .
 - .
